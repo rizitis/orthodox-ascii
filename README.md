@@ -1,3 +1,3 @@
 # orthodox-ascii
 Orthodox geeks art.
-Την ευχ
+Την ευχή τους να έχουμε!
